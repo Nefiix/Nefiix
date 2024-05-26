@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Nefiix
+- 👀 I’m interested in GRAPHIC DESIGN
+- 🌱 I’m currently learning Adobe, HTML and CSS
